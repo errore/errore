@@ -1,4 +1,4 @@
-## 😎👆 Indie game developer
+## 😎👆 Indie game developer, Not dying game developer
 
 ## Graphic is AWSOME!!!🕶
 
